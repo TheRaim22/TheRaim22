@@ -6,6 +6,6 @@
 Here are some ideas to get you started:
 
 
-- 🌱 I’m currently learning on Georg simon ohm BK
+- 🌱 I’m currently learning on the Georg simon ohm school
 - ⚡ Fun fact: ...
 
